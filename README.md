@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @adnanattar<br>👀 I’m interested in - Android, Web and Blockchain Development <br>🌱 My Education - B.Tech in CSE<br>💞️ I’m looking to collaborate on ...<br>📫 How to reach me - By using mail androtechbuddy@gmail.com<br>🚀 Know more - http://androtechbuddy.com
+👋 Hi, I’m @adnanattar<br>👀 Founder & CEO @Andro-Buddy-Technologies <br>🌱 My Education - Computer Science Engineer <br>📫 How to reach me - By using mail hello@androtechbuddy.com<br>🚀 Know more - http://androtechbuddy.com
 
 
 ## 🌐 Socials:
