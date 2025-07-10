@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @adnanattar<br>👀 Founder & CEO @Andro-Buddy-Technologies <br>🌱 My Education - Computer Science Engineer <br>📫 How to reach me - By using mail hello@androtechbuddy.com<br>🚀 Know more - http://androtechbuddy.com
+👋 Hi, I’m @adnanattar<br>👀 Founder & CEO @Andro Buddy Technologies Pvt. Ltd.<br>🌱 My Education - Computer Science Engineer <br>📫 How to reach me - By using mail hello@androtechbuddy.com<br>🚀 Know more - http://androtechbuddy.com
 
 
 ## 🌐 Socials:
